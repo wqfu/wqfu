@@ -4,7 +4,7 @@ WATCH LETTERS FROM SIXTEEN !!!!!!!!
 
 https://youtube.com/playlist?list=PLG9q57fJDRcY&si=pMl-CG4-849uuLlF
 
-<img height="180cm" src="https://i.postimg.cc/Sx4X6Gkz/1782482156239.png"/>
+<img height="180cm" src="https://i.postimg.cc/wM74kCWj/Screenshot-20260814-040007-You-Tube.jpg"/>
 
 Hi you reading!
 youre cool ok dontforget that,youre amazing, neverlet anyone take your thoughts down <3. i hope youhave a nice day
