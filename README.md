@@ -1,8 +1,9 @@
+
+That conexion guy is pretty cool...
+
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=brandon68759352)
 
-WATCH LETTERS FROM SIXTEEN !!!!!!!!
-
-https://youtube.com/playlist?list=PLG9q57fJDRcY&si=pMl-CG4-849uuLlF
+hi hello im sharpness / brandon / conexion🩷🩷
 
 <img height="180cm" src="https://i.postimg.cc/wM74kCWj/Screenshot-20260814-040007-You-Tube.jpg"/>
 
@@ -19,6 +20,11 @@ dont copy my ponies inspo is ok but only if u ask if u can inspo
 
 i only let light inspo,, but if uve beenmy friend for a long time heavy inspo is ok
 
+WATCH LETTERS FROM SIXTEEN !!!!!!!!
+
+https://youtube.com/playlist?list=PLG9q57fJDRcY&si=pMl-CG4-849uuLlF
+
 okay, thats all!
+🍉
 
 <img height="180cm" src="https://i.postimg.cc/1Rc0L4XS/images-2026-06-26T104757-449.jpg"/>
