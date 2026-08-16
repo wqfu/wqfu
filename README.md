@@ -20,10 +20,6 @@ dont copy my ponies inspo is ok but only if u ask if u can inspo
 
 i only let light inspo,, but if uve beenmy friend for a long time heavy inspo is ok
 
-WATCH LETTERS FROM SIXTEEN !!!!!!!!
-
-https://youtube.com/playlist?list=PLG9q57fJDRcY&si=pMl-CG4-849uuLlF
-
 okay, thats all!
 🍉
 
