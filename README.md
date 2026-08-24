@@ -5,7 +5,7 @@ That brandon guy is pretty cool...
 
 <img height="180cm" src="https://s.namemc.com/3d/skin/body.png?id=7eaa0ad98ee55415&model=slim&width=308&height=308"/>
 
-[go support my art ok thanks?pls](<https://pin.it/6zXgQdQ4h>)
+[go support my art ok thanks?pls](<https://pin.it/4NVRMDzIC>)
 
 hi hello im sharpness / brandon / conexion / whatever u wanna call me i accept any names 🩷🩷
 
