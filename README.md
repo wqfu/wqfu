@@ -1,18 +1,20 @@
 
-That conexion guy is pretty cool...
+That brandon guy is pretty cool...
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=brandon68759352)
 
-hi hello im sharpness / brandon / conexion🩷🩷
+<img height="180cm" src="https://s.namemc.com/3d/skin/body.png?id=7eaa0ad98ee55415&model=slim&width=308&height=308"/>
 
-<img height="180cm" src="https://i.postimg.cc/wM74kCWj/Screenshot-20260814-040007-You-Tube.jpg"/>
+[go support my art ok thanks?pls](<https://pin.it/6zXgQdQ4h>)
 
-Hi you reading!
+hi hello im sharpness / brandon / conexion / whatever u wanna call me i accept any names 🩷🩷
+
+you reading!
 youre cool ok dontforget that,youre amazing, neverlet anyone take your thoughts down <3. i hope youhave a nice day
 
 check strawpage mfor more info about me!
 
-im a verylonely person uhh ,pls bmf..i dont havemuch friends yea:p i usually dont approachpeople and just sit somewhere far>_> but im very friendly!! (ithink ??)
+im a verylonely person uhh ,pls bmf..i dont havemuch friends in this game yea:p i usually dont approachpeople and just sit somewhere far>_> but im very friendly!! (ithink ??) im. someone who plays like. all day. n replies. whenever you want. so. ithink u can already guess. ok.
 
 i sometimes fall asleep whileplaying so if i dont reply thats the reason, but illprobably come back after some time!
 
