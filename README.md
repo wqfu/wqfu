@@ -5,17 +5,18 @@ account only for pony town
 
 heewowooo ::333 im shwaaywpnwess UwU~ hewes my intwo; i wewawwy wike pwaying pony toeh... i hwope we cwan bwe fwiends yaaaaa >3< i weawwy wike stwength smp OnO pweaswe dwont be scwawed of tweawking with mwe.... 
 
-@Iamfinethankyouandyoucantextme. Hello.
-
 Vintage French 1980s, Romantic Home Decor, Victorian Collectible with Miniature Chair, Gift for Her, Shabby chic
 
+<img height="180cm" src="https://i.postimg.cc/HL7pdpyR/Screenshot-20260926-162608-Discord.jpg"/>
 💀1
 
-Hello. adults; Please do not interact. I am not AI-Generated. THANKYOUAND Thankyouand THANK YOU- What the ree- *meows*
+SO8! 😤😤😤😤😤😤😤🤬🤬🤬🤬🤬🤬🤬💨💨💨💨💨💨💢💢💢💢💢💢💢💢💢💢🫯💢💢🫯🫯🫯💨💨💢💨💨🫯🫯🫯💢💢💢💢🫯🫯🫯🫯💔💔💔💔💔💔💔💔💔💔💔I am COMING FOR YOU! 😤😤🤬🤬😤🤬💢🤬🫯🤬💔🤬💔💨🫯😤😤🫯😤🫯😤🫯😤🫯🫯😤💢😤💢😤😤😤🤬😤😤🤬😤😤💨😤💨😤😤😤💨😤💢😤🫯🤬💔🤬😤🫯😤💢🤬💨😤💨😤💨😤💨😤💨😤😤😤💨😤💨💨😤😤🤬💨😤 YOU CANNOT RUN AWAY FROM ME! 🤬🤬🤬🤬🤬🤬🤬😤🤬😤🤬🤬😤😤🤬😤🤬🤬🤬🤬🤬🤬🤬🤬🤬🤬🤬🤬🤬🤬😤🤬🤬😤🤬😤🤬😤🤬🤬😤🤬🤬😤🤬😤🤬🤬😤😤💢💢💨🫯💨🫯😤🫯😤🫯💨🫯💨 I AM TRULY HEARTBROKEN BY THIS NEGLECT! 💢💢💢🤬🤬🤬💢💨💢💨💢🫯💢🫯💢💢🫯🫯💢🫯💢😤💔😤💔😤💔🤬🫯🤬💨💔😤💔💔🫯💔💨🤬🫯🤬🫯💔🫯💔🫯🤬🫯🤬😤💔😤
 
 Goob😋💛 - DW | DNC] You do realize spamming is against the rules, right? Hi] whispers: Bro's throwing random words around like a npc 💀💀💀 afk c+h&w2i •°○|ᴅɴᴄ | ᴄᴅ | ᴏᴛᴅ | ᴡ2ɪ | ʀᴘᴅɴɪ | ᴄ+ʜ | ᴀꜰᴋ I noticed that you used “😭” in your reply. Just wanted to say, don’t give up anything in your life. I don’t know what you’re going through but I’m always here to help.
 
-Dwo nwot copwy my ponyes thawnkyou O3o. inspwo is okway i dwont cawe LOLLLL- 🤣🤣🤣😂😂🎉🎉🥰🥰🥰🥰❤️❤️❤️👌#ThabkYoucanText
+Hewwo I'm vewity Ywour pewsownal hwelper fryend ask mwe anythwying I knyow evewythyng.
+
+Dwo nwot copwy my ponyes thawnkyou O3o. inspwo is okway
 
 <img height="180cm" src="https://i.postimg.cc/c4cXHwSY/Screenshot-20260930-104331-Discord.jpg"/>
 
